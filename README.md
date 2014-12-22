@@ -35,359 +35,197 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The most famous and tragicall historie of Pelops and Hippodamia Whereunto are adioyned sundrie pleas
+
+1. ¶ To the ryght Honorable, Sir Henrie Compton knight, Lord Compton of Compton hole, R. S. wiſheth long life with increaſe of honour.
+
+1. ❧ The Authors Epiſtle.
+
+1. The argument of the Hiſtorie following.
+
 #####Body#####
 
-1. Here foloweth the Proclamation.
+1. The moſt famous and tragicall hiſtory of Pelops and Hippodamia.
 
-    _ Tempus rerum edax.
+    _ Here foloweth the Proclamation.
 
-1. Of the moſt famous, renowmed, and thrice happie Realme of England.
+1. Epigrams and Sonets.
 
-    _ Tempus rerum edax.
+    _ Of the moſt famous, renowmed, and thrice happie Realme of England.
 
-1. The Author being minded to write, but la• king an argument, made this following, thinking wherof he were beſt to write.
+    _ The Author being minded to write, but la• king an argument, made this following, thinking wherof he were beſt to write.
 
-    _ Tempus rerum edax.
+    _ The louer being demaunded wherefore he went alwaies in black attire, in cōmen datiō of the ſame, made anſwere to his Lady on this wiſe,
 
-1. The louer being demaunded wherefore he went alwaies in black attire, in cōmen datiō of the ſame, made anſwere to his Lady on this wiſe,
+    _ The louer hauing daunced with his Lady, in the end thereof ſpeaketh theſe words.
 
-    _ Tempus rerum edax.
+    _ The anſwere to the ſame.
 
-1. The louer hauing daunced with his Lady, in the end thereof ſpeaketh theſe words.
+    _ Omne mundum poſitum est in malign tatem.
 
-    _ Tempus rerum edax.
+    _ The reſtleſſe eſtate of a Louer, written to a frēd of his, whrein he craueth to haue ſome good councel to eaſe his greefe.
 
-1. The anſwere to the ſame.
+    _ The Louer writeth to a Gentlewoman, by treatie to cauſe her to loue him, if he may poſſible.
 
-    _ Tempus rerum edax.
+    _ Here the Ladie writeth an aunſwere to the letter of hir Louer, perſeuering in hir ſtubburneſſe: nothing ruing his faithfull heart.
 
-1. Omne mundum poſitum est in malign tatem.
+    _ The letter of a friend of a wounded Louer, wherein hee goeth about to diſſwade him from this louelie follie.
 
-    _ Tempus rerum edax.
+    _ The Louer writeth once more to his friend, as doeth followe after.
 
-1. The reſtleſſe eſtate of a Louer, written to a frēd of his, whrein he craueth to haue ſome good councel to eaſe his greefe.
+    _ The lamentation of a louer beeing refuſed, ſhewing no helliſh torments to be lyke his, wherwith he accuſeth his Ladies crueltie, & yet at lēgth praieth to haue releefe.
 
-    _ Tempus rerum edax.
+    _ The Louer hauing written manye times, almoſt paſt hope, yet doeth renew his playnt againe.
 
-1. The Louer writeth to a Gentlewoman, by treatie to cauſe her to loue him, if he may poſſible.
+    _ The louer being denied, yet ſingeth this ſong being conſtant, with hope to obteine hir at the laſt that may reward him for his paine.
 
-    _ Tempus rerum edax.
+    _ The Ladie by often intreatie being vanquiſhed with loue, doth write a comfortable letter to her Louet.
 
-1. Here the Ladie writeth an aunſwere to the letter of hir Louer, perſeuering in hir ſtubburneſſe: nothing ruing his faithfull heart.
+    _ The ioyfull louer hauing by earneſt ſute obtained her whom he loued, made this ditue following.
 
-    _ Tempus rerum edax.
+      * Tempus rerum edax.
 
-1. The letter of a friend of a wounded Louer, wherein hee goeth about to diſſwade him from this louelie follie.
+    _ The Louer being willed of his Ladie to attire himſelfe in blacke and blewe, demaunded the reaſon, to whome ſhe made this anſwere folowing by a letter.
 
-    _ Tempus rerum edax.
+    _ The Louer writeth to his Ladie, wherein he condiſcendeth to weare the colours that ſhe willeth him for hir ſake.
 
-1. The Louer writeth once more to his friend, as doeth followe after.
+    _ To him that was diſappointed of his woman and louer.
 
-    _ Tempus rerum edax.
+    _ The louer writeth in the praiſe of his Ladie wherein he doth compare hir to a Laurel tree that is alwaies greene.
 
-1. The lamentation of a louer beeing refuſed, ſhewing no helliſh torments to be lyke his, wherwith he accuſeth his Ladies crueltie, & yet at lēgth praieth to haue releefe.
+    _ The pretie birth of a childe.
 
-    _ Tempus rerum edax.
+    _ The wordes of a dame concerning her Louer, ſpoken to one Miſtreſſe Anne.
 
-1. The Louer hauing written manye times, almoſt paſt hope, yet doeth renew his playnt againe.
+    _ In praiſe of his Ladie.
 
-    _ Tempus rerum edax.
+    _ Of foure kindes of men that maie ſing at didner, and other meate meales.
 
-1. The louer being denied, yet ſingeth this ſong being conſtant, with hope to obteine hir at the laſt that may reward him for his paine.
+    _ Of couetouſnes and Lecherie together.
 
-    _ Tempus rerum edax.
+    _ A perfect tricke to kill little blacke flees in ones chamber.
 
-1. The Ladie by often intreatie being vanquiſhed with loue, doth write a comfortable letter to her Louet.
+    _ Each thing in his vocation.
 
-    _ Tempus rerum edax.
+    _ The fraileneſſe of women.
 
-1. The ioyfull louer hauing by earneſt ſute obtained her whom he loued, made this ditue following.
+    _ To his friend of the fruileneſſe of dame Fortune.
 
-    _ Tempus rerum edax.
+    _ The morning before the Louer went to his Ladie, made this petition to the Gods.
 
-1. The Louer being willed of his Ladie to attire himſelfe in blacke and blewe, demaunded the reaſon, to whome ſhe made this anſwere folowing by a letter.
+    _ The fooliſhnes of a painter.
 
-    _ Tempus rerum edax.
+    _ The grieuous complaint of him that had the hap to marie his miſtreſſe.
 
-1. The Louer writeth to his Ladie, wherein he condiſcendeth to weare the colours that ſhe willeth him for hir ſake.
+    _ The Louer by pleaſant talke cauſed a Ladie to vnderſtand how a ſhrew or vnhappie woman came firſt into the world.
 
-    _ Tempus rerum edax.
+    _ Offaithfull friendſhip.
 
-1. To him that was diſappointed of his woman and louer.
+    _ What daunger inſueth if a man enterpriſe a higher place then his degree can aſpire vnto.
 
-    _ Tempus rerum edax.
+    _ Of parents deformed hauing a beutifull childe.
 
-1. The louer writeth in the praiſe of his Ladie wherein he doth compare hir to a Laurel tree that is alwaies greene.
+    _ Of him that tooke a quart of wine when it was proffered by his freend, who minded to get a pottell.
 
-    _ Tempus rerum edax.
+    _ To hir the Louer writeth, being familiarlie acquainted, refuſed in preſence to ſpeake to him.
 
-1. The pretie birth of a childe.
+    _ Of Vnthrifts.
 
-    _ Tempus rerum edax.
+    _ Of Whoredome.
 
-1. The wordes of a dame concerning her Louer, ſpoken to one Miſtreſſe Anne.
+    _ Like will to like.
 
-    _ Tempus rerum edax.
+    _ Of vnwittie ſpending.
 
-1. In praiſe of his Ladie.
+    _ Perit quicquid feceris ingrato.
 
-    _ Tempus rerum edax.
+    _ The propertie of Reprobates.
 
-1. Of foure kindes of men that maie ſing at didner, and other meate meales.
+    _ A good man.
 
-    _ Tempus rerum edax.
+    _ A perfect preſeruatiue for health.
 
-1. Of couetouſnes and Lecherie together.
+    _ A ſtupendious deſire.
 
-    _ Tempus rerum edax.
+    _ Olde men.
 
-1. A perfect tricke to kill little blacke flees in ones chamber.
+    _ Diuerſitie of remembrance.
 
-    _ Tempus rerum edax.
+    _ The deceites of the Foxe.
 
-1. Each thing in his vocation.
+    _ Of a womans hatred.
 
-    _ Tempus rerum edax.
+    _ Of boaſting and bragging.
 
-1. The fraileneſſe of women.
+    _ A ſigne of anger.
 
-    _ Tempus rerum edax.
+    _ The ſudden falling into danger:
 
-1. To his friend of the fruileneſſe of dame Fortune.
+    _ The pitie of Dormice.
 
-    _ Tempus rerum edax.
+    _ Of imdietie of children.
 
-1. The morning before the Louer went to his Ladie, made this petition to the Gods.
+    _ The ſinnes of Kings.
 
-    _ Tempus rerum edax.
+    _ Of eating of egges:
 
-1. The fooliſhnes of a painter.
+    _ To him that was angrie becauſe the Cuckow did ſing before his doore.
 
-    _ Tempus rerum edax.
+    _ Of Sugar and Salt.
 
-1. The grieuous complaint of him that had the hap to marie his miſtreſſe.
+    _ Of haſtie wiuing.
 
-    _ Tempus rerum edax.
+    _ Of deſpiſing of the poore.
 
-1. The Louer by pleaſant talke cauſed a Ladie to vnderſtand how a ſhrew or vnhappie woman came firſt into the world.
+    _ Of harlots.
 
-    _ Tempus rerum edax.
+    _ Of keeping companie with naughtipacks.
 
-1. Offaithfull friendſhip.
+    _ The Prouerbe.
 
-    _ Tempus rerum edax.
+    _ Of anger without a cauſe.
 
-1. What daunger inſueth if a man enterpriſe a higher place then his degree can aſpire vnto.
+    _ Of husbandrie and Scholers.
 
-    _ Tempus rerum edax.
+    _ Another Prouerbe.
 
-1. Of parents deformed hauing a beutifull childe.
+    _ The error of the wicked.
 
-    _ Tempus rerum edax.
+    _ Of pleading where a man's not heard.
 
-1. Of him that tooke a quart of wine when it was proffered by his freend, who minded to get a pottell.
+    _ The frailneſſe of youth.
 
-    _ Tempus rerum edax.
+    _ Nothing is hid from God.
 
-1. To hir the Louer writeth, being familiarlie acquainted, refuſed in preſence to ſpeake to him.
+    _ Of flatterie and lieng.
 
-    _ Tempus rerum edax.
+    _ A faithfull frend.
 
-1. Of Vnthrifts.
+    _ Of coſtlie apparel.
 
-    _ Tempus rerum edax.
+    _ Of Neighbourlie aide.
 
-1. Of Whoredome.
+    _ Of good counſell.
 
-    _ Tempus rerum edax.
+    _ Of him that would ſight at home, and no where els.
 
-1. Like will to like.
+    _ Of a couetous mind.
 
-    _ Tempus rerum edax.
+    _ The Prouerbe.
 
-1. Of vnwittie ſpending.
+    _ Of wicked children.
 
-    _ Tempus rerum edax.
+    _ Of vvailing for the dead.
 
-1. Perit quicquid feceris ingrato.
+    _ Of parents.
 
-    _ Tempus rerum edax.
+    _ Of ſuch as had rather haue harlots than wiues
 
-1. The propertie of Reprobates.
+    _ Of him that eſteemeth riches more than frendſhip.
 
-    _ Tempus rerum edax.
-
-1. A good man.
-
-    _ Tempus rerum edax.
-
-1. A perfect preſeruatiue for health.
-
-    _ Tempus rerum edax.
-
-1. A ſtupendious deſire.
-
-    _ Tempus rerum edax.
-
-1. Olde men.
-
-    _ Tempus rerum edax.
-
-1. Diuerſitie of remembrance.
-
-    _ Tempus rerum edax.
-
-1. The deceites of the Foxe.
-
-    _ Tempus rerum edax.
-
-1. Of a womans hatred.
-
-    _ Tempus rerum edax.
-
-1. Of boaſting and bragging.
-
-    _ Tempus rerum edax.
-
-1. A ſigne of anger.
-
-    _ Tempus rerum edax.
-
-1. The ſudden falling into danger:
-
-    _ Tempus rerum edax.
-
-1. The pitie of Dormice.
-
-    _ Tempus rerum edax.
-
-1. Of imdietie of children.
-
-    _ Tempus rerum edax.
-
-1. The ſinnes of Kings.
-
-    _ Tempus rerum edax.
-
-1. Of eating of egges:
-
-    _ Tempus rerum edax.
-
-1. To him that was angrie becauſe the Cuckow did ſing before his doore.
-
-    _ Tempus rerum edax.
-
-1. Of Sugar and Salt.
-
-    _ Tempus rerum edax.
-
-1. Of haſtie wiuing.
-
-    _ Tempus rerum edax.
-
-1. Of deſpiſing of the poore.
-
-    _ Tempus rerum edax.
-
-1. Of harlots.
-
-    _ Tempus rerum edax.
-
-1. Of keeping companie with naughtipacks.
-
-    _ Tempus rerum edax.
-
-1. The Prouerbe.
-
-    _ Tempus rerum edax.
-
-1. Of anger without a cauſe.
-
-    _ Tempus rerum edax.
-
-1. Of husbandrie and Scholers.
-
-    _ Tempus rerum edax.
-
-1. Another Prouerbe.
-
-    _ Tempus rerum edax.
-
-1. The error of the wicked.
-
-    _ Tempus rerum edax.
-
-1. Of pleading where a man's not heard.
-
-    _ Tempus rerum edax.
-
-1. The frailneſſe of youth.
-
-    _ Tempus rerum edax.
-
-1. Nothing is hid from God.
-
-    _ Tempus rerum edax.
-
-1. Of flatterie and lieng.
-
-    _ Tempus rerum edax.
-
-1. A faithfull frend.
-
-    _ Tempus rerum edax.
-
-1. Of coſtlie apparel.
-
-    _ Tempus rerum edax.
-
-1. Of Neighbourlie aide.
-
-    _ Tempus rerum edax.
-
-1. Of good counſell.
-
-    _ Tempus rerum edax.
-
-1. Of him that would ſight at home, and no where els.
-
-    _ Tempus rerum edax.
-
-1. Of a couetous mind.
-
-    _ Tempus rerum edax.
-
-1. The Prouerbe.
-
-    _ Tempus rerum edax.
-
-1. Of wicked children.
-
-    _ Tempus rerum edax.
-
-1. Of vvailing for the dead.
-
-    _ Tempus rerum edax.
-
-1. Of parents.
-
-    _ Tempus rerum edax.
-
-1. Of ſuch as had rather haue harlots than wiues
-
-    _ Tempus rerum edax.
-
-1. Of him that eſteemeth riches more than frendſhip.
-
-    _ Tempus rerum edax.
-
-1. Of Deſtinie.
-
-    _ Tempus rerum edax.
+    _ Of Deſtinie.
 
 #####Back#####
-The most famous and tragicall historie of Pelops and Hippodamia Whereunto are adioyned sundrie pleas
+LONDON, Imprinted by Abell Ieſſes, dwelling in the Foreſtréete without Créeplegate néere vnto Grubſt
 **Types of content**
 
   * There are 3515 **verse** lines!
